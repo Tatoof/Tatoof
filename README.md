@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tatoof
+- 👀 I’m interested in making programs
+- 🌱 I’m currently learnin python
+- You can contact me in instagram @kelaxoyedit
